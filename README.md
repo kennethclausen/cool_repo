@@ -1,4 +1,4 @@
-# HEJ KEVIN!!! :D
+# HEJ KEVIN!!! :-(
 
 ## En mindre overskrift
 
